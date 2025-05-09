@@ -27,7 +27,7 @@ Confira meus repositórios no GitHub! Estou sempre desenvolvendo novos projetos 
 
 ## 📬 Contato
 
-- 🔗 [LinkedIn](https://www.linkedin.com/in/ricardo-pietro-0ab017284/)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/ricardopietro/)
 - 📧 [Email](mailto:brakvp@hotmail.com)
 
 Fique à vontade para explorar meu perfil e entrar em contato! 🚀
